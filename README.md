@@ -1,5 +1,5 @@
 # About Me:
- I’m currently working on web & app development.<br> I’m looking to working as a freelancer or create a web app or video games that will generate passive incomes.<br> I’m looking for help with coding stuff and everything related on engineering software domain.<br> I’m currently learning everything that is on general It such as development language as protection languages (IT and CS combined).<br> Fun fact is that I've much energy to express and most of the time I bring joy to people around me.
+I’m  working as a freelancer or create a web app and video games with integrated AI.<br> I’m looking for help with coding related on engineering software domain.<br> I learn general topics IT such as development language as protection languages (IT and CS combined).
 
 
 ## Socials:
